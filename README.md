@@ -1,1 +1,3 @@
-# Integrity-and-Anti-Corruption-Course
+# Integrity and Anti-Corruption Course
+
+Academic integrity allows students and staff the freedom to build new ideas, knowledge and creative works while respecting and acknowledging the work of others. The University will respond to academic misconduct in a fair, consistent, transparent and timely manner. Academic integrity supports learning opportunities. Shortcut solutions like plagiarism, contract cheating, and test banks take away learning opportunities for students. When the work is not the student’s own, they aren’t putting their original thoughts on paper. Students then lose the opportunity to receive feedback that is accurate to their needs and the resulting support they may need to further their learning journey.
